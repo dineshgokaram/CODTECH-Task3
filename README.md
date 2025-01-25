@@ -1,4 +1,4 @@
-**Name:** GOKARAM DINESH GOUD
+![Screenshot 2025-01-25 171025](https://github.com/user-attachments/assets/e6b45d4e-5ae4-418a-ae5f-19afbcee3b18)**Name:** GOKARAM DINESH GOUD
 
 **Company:** CODTECH IT SOLUTIONS
 
@@ -115,5 +115,14 @@ Submit a pull request.
 
 
 ## Screenshots
+![Screenshot 2025-01-25 171025](https://github.com/user-attachments/assets/41a2868a-f5f2-4b50-bc6c-0692a863648f)
 
-![Screenshot 2025-01-25 171025](https://github.com/user-attachments/assets/d5b4a061-2e7e-4ed7-9d27-2579162085e6)
+![Screenshot 2025-01-25 171128](https://github.com/user-attachments/assets/5235d6c9-ec06-4b1a-9d9d-cc9b7e732881)
+
+![Screenshot 2025-01-25 172156](https://github.com/user-attachments/assets/28a85467-e790-4cf6-81bc-122cac41aea3)
+
+![Screenshot 2025-01-25 172235](https://github.com/user-attachments/assets/13ccbba9-f72b-47b0-873f-9709700c8cf4)
+
+
+
+
