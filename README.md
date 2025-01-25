@@ -1,4 +1,4 @@
-![Screenshot 2025-01-25 171025](https://github.com/user-attachments/assets/e6b45d4e-5ae4-418a-ae5f-19afbcee3b18)**Name:** GOKARAM DINESH GOUD
+**Name:** GOKARAM DINESH GOUD
 
 **Company:** CODTECH IT SOLUTIONS
 
